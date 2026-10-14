@@ -47,4 +47,4 @@ Belal_Rabea_WAPT_Phase-1/
 
 ## Author
 
-**Belal Rabea Khalifa** — [0xf3rgx.github.io](https://0xf3rgx.github.io) · [GitHub](https://github.com/0xf3rgx) · [Blog](https://medium.com/@alnesr502)
+**Belal Rabea Khalifa** — [Portfolio](https://x0xf3rgx.lovable.app/) · [LinkedIn](https://www.linkedin.com/in/belalfergani) · [GitHub](https://github.com/0xf3rgx) · [YouTube](https://www.youtube.com/@belal0xFergani) · [Blog](https://medium.com/@alnesr502)
